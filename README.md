@@ -4,7 +4,7 @@
 
 ![image](MSECECoverLetter2.jpg)
 
-![image](MSECECoverLetter1=3.jpg)
+![image](MSECECoverLetter3.jpg)
 
 ![image](EthicsandExcellence.png)
 
